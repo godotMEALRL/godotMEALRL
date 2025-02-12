@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on game websites
 - 📫 How to reach me you can't ha
-- 😄 Pronouns: why this here wtf it don't matter
-- ⚡ Fun fact: Skibidi Is so non-chalant
+- 😄 Pronouns: FUCK PRONOUNS
+- ⚡ Fun fact: Skibidi Is so nonchalant 
 
 <!---
 godotMEALRL/godotMEALRL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
